@@ -1,0 +1,5 @@
+- 👋 Hi, I’m @ArttieF
+- 👀 I’m interested in Reading, Gaming.
+- 🌱 I’m currently learning To much.
+- 💞️ I’m looking to collaborate on Tekhne & Tekhne-Server for my minecraft pack
+- 📫 How to reach me ArttieF@gmail.com or ArttieFaust#5850 on Discord

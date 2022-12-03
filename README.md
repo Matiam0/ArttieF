@@ -1,4 +1,4 @@
 - 👋 Hi, I’m @ArttieF
 - 👀 I’m interested in reading & gaming.
 - 🌱 I’m currently learning a little.
-- 📫 How to reach me ArttieF@gmail.com or ArttieFaust#5850 on Discord
+- 📫 How to reach me ArttieF+GitHub@gmail.com
